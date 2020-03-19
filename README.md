@@ -3,7 +3,7 @@
 永久地址： https://tktube.com/ <br />
 
 地址：
-https://3055.xyz/
-http://tktube.xyz/[推荐！]
+https://3055.xyz/ <br />
+http://tktube.xyz/ [推荐！]
 
 此发布页随时新增、更新地址，請務必收藏使用。
